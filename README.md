@@ -1,0 +1,6 @@
+- 👋 Hello, Welcome to @halkacode 
+- 👀 I’m interested in playing with codes💻📱
+- 🌱 I’m currently learning web dev from internet 🛜 🌐
+- 💞️ I’m looking to collaborate on web projects 
+- 📫 How to reach me binitnandy228@gmail.com
+- 😄 Pronouns: he/him
